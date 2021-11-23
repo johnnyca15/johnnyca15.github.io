@@ -1,0 +1,2 @@
+Johnny Ca (Keyboard)
+Johnny lived in Chanhassen MN, 5 minutes away from Prince's studio. He always had a passion of music, especially creating covers of popular songs. Johnny's music education was originally started from playing classical piano, until he was tired of practicing. He then took some time off to play songs that he wanted to hear. After years of self-taught, he grew a passion for playing songs by The Beatles.
